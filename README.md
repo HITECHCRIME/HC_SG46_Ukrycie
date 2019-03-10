@@ -17,7 +17,8 @@ szuka afirmacji
 bez żadnego celu
 pośród tłoku ego
 smrodu informacji
-
 przecież to ukrycie
+w trybie natychmiastowym
+
 
 
