@@ -18,4 +18,6 @@ bez żadnego celu
 pośród tłoku ego
 smrodu informacji
 
+przecież to ukrycie
+
 
