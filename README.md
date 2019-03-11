@@ -10,7 +10,7 @@ wyjdzie nie kitrając tego wcale
 grupa czerń, oooj
 będzie subwers, nie ten fame
 większość tutaj jest na stałe
-kiedy trzeba będzie dejm
+kiedy trzeba będzie zamęt
 
 większość tutaj jest na stałe
 szuka afirmacji bez żadnego celu
