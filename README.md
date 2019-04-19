@@ -16,7 +16,8 @@ większość tutaj jest na stałe
 szuka afirmacji bez żadnego celu
 pośród tłoku ego smrodu informacji
 przecież to ukrycie 
-w trybie życie natychmiastowym
+w trybie życie 
+natychmiastowym
 
 
 
